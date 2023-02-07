@@ -1,1 +1,1 @@
-This is how I win
+God is Love
